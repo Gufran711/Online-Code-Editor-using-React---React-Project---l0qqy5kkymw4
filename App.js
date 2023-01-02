@@ -1,1 +1,0 @@
-Mohd Gufran Khan wants to become frontend engineer.
